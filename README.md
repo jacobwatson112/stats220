@@ -18,3 +18,4 @@ this gif is cool because:
 * gamer
 * 19 dollar fortnite card
 * represents the diverse community of Among Us
+* 🔥
