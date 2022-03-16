@@ -13,7 +13,7 @@ https://jacobwatson112.github.io/stats220/
 
 ![](https://c.tenor.com/h99LQHUExJIAAAAM/19dollar-fortnite-card-among-us.gif)
 
-This gif is cool because
+this gif is cool because:
 * sus
 * gamer
 * 19 dollar fortnite card
