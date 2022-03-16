@@ -19,3 +19,6 @@ this gif is cool because:
 * 19 dollar fortnite card
 * 🔥💯👌
 * represents the diverse community of Among Us
+* gf likes it
+
+![](https://cdn.discordapp.com/attachments/826762538120904725/953512708974731354/unknown.png)
